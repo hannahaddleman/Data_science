@@ -1,0 +1,1 @@
+Maple and palm trees
